@@ -1,0 +1,1 @@
+<a href="doc.txt" title="Скачать инструкцию" download><button>Скачать тeкстовый документ</button></a>
