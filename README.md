@@ -2,8 +2,7 @@
 фadssd
 asdфвыячсasdasddsasdsssasdasd
 sdfавппавsadasdaaaddsssssadadasdsdasd
-апвsadasdasdasdadssdqqadasdsasdadadasdasdasdasdasdasdasdadasdasd
-пваasddsadadadssasdsd
+апвsadasdasdasdadssdqqadasdsasdadadasdasdasdasdasdasdasdadasdasdasd
 ясsadssasd
 ясчasdasd
 чсячсasd
